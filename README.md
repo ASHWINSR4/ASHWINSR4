@@ -1,4 +1,4 @@
-# Hi, I'm Ashwin Sharma 👋
+# Hi, I'm Ashwin 👋
 
 ## 🧑‍💻 About Me
 
